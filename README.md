@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there, I'm Avnish Rai  👋<br><br>🌱 I’m currently learning NLP and Computer Vision<br>👯 I’m looking to collaborate on some new Computer Vision Projects<br>🔭 I’m currently working on a Computer Vision Project<br>📫 How to reach me: avnishrai1019@gmail.com<br>😄 Pronouns: He/Him<br>⚡ Fun fact: I hate co*****
+Hi there, I'm Avnish Rai  👋<br><br>🌱 I’m currently learning NLP and Computer Vision<br>👯 I’m looking to collaborate on some new Computer Vision Projects<br>🔭 I’m currently working on a Computer Vision Project<br>📫 How to reach me: avnishrai1019@gmail.com<br>😄 Pronouns: He/Him<br>⚡ Fun fact: I hate ..............
 
 
 
